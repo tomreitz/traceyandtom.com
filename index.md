@@ -1,4 +1,6 @@
-![Tracey and Tom](traceyandtom.jpg)
+<p align="center">
+  <img src="/traceyandtom.jpg" />
+</p>
 
 Thanks for visiting! We are a pair of (mostly) home-grown Wisconsinites traveling through life together and striving to do God's will to the best of our abilities.
 
