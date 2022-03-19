@@ -1,3 +1,5 @@
+![Tracey and Tom](traceyandtom.jpg)
+
 Thanks for visiting! We are a pair of (mostly) home-grown Wisconsinites traveling through life together and striving to do God's will to the best of our abilities.
 
 We met in the summer of 2013 through our local Catholic 20's and 30's Young Adult group. After dating in the summer of 2014, we knew we were called to the adventure of marriage! We were married on July 25, 2015, surrounded by our family and friends, and began our life together. We live on the near-west side of Madison, WI, spending much of our free time either outdoors, in the kitchen, or engaged in a game of cards.
